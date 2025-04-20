@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @YZN3MR
 - 👀 I’m interested in Workingout, Lifestyle, Music, Cooking, and more ∞
-- 🌱 I’m currently studying Specalization in Computer Science Minoring Software Engineering
+- 🌱 I’m currently studying Specalization in Computer Science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Yabushirbi2027@gmail.com
 
